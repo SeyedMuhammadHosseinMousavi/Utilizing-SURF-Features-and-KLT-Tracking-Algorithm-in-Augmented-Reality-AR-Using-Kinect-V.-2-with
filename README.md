@@ -7,3 +7,9 @@
 
 ![proposed method](https://github.com/user-attachments/assets/a188a993-2fda-45ae-84c2-fc811921f81a)
 
+![image](https://github.com/user-attachments/assets/efa01b2d-9907-4140-a1aa-73051730d5ea)
+
+![figs](https://github.com/user-attachments/assets/5bfb7fb3-55a6-4a53-a668-75b71c05c850)
+
+
+![image](https://github.com/user-attachments/assets/35b03904-add8-468e-8517-5d686bf4989f)
